@@ -1,1 +1,1 @@
-# Trabajo-Pr-ctico-N-1---Seminario
+# Trabajo-Practico-N-1---Seminario
